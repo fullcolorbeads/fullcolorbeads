@@ -1,1 +1,1 @@
-I'm only interested in fullcolobeads.com
+I'm only interested in fullcolorbeads.com
